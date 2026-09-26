@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Samadrita Nandi
+# 💫 Hi, I'm Samadrita Nandi
 **A passionate Engineering student**
 
 Email Me 👉 ✉️ **samadritanandi8@gmail.com** For Projects or Anything Else. 😊😊
