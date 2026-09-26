@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **samadritanandi8@gmail.com** For Projects or Anything Else. 😊😊
 
 - 
-- 🌱 **I’m currently learning:** C, HTML and Java
+- 🌱 **I’m currently learning:** C and Java
 
 - 📫 **How to reach me:** samadritanandi8@gmail.com
 - 😄 **Pronouns:** Samadrita
